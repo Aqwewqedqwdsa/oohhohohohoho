@@ -1,2 +1,1 @@
-# oohhohohohoho
-xd
+# bot-list-lozbey
